@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sjhhhhhhh
 - 👀 I’m interested in LOL.
 - 🌱 I’m currently learning International Business.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I have a very cute girlfriend.
 - 📫 How to reach me 1025377324@qq.com
 
 <!---
